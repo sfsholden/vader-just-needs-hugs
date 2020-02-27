@@ -25,3 +25,6 @@ This is all sorts sillyness and joy.
 
 ## How does Darth Vader like his toast?
     On the dark side. (https://upjoke.com/darth-vader-jokes)
+    
+## I heard Darth Vader's suit was really expensive.
+    It must have cost him an arm and a leg. (https://upjoke.com/darth-vader-jokes)
