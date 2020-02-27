@@ -31,3 +31,6 @@ This is all sorts sillyness and joy.
     
 ## What did Darth Vader do when his iTunes stopped responding?
     He force quit. (https://upjoke.com/darth-vader-jokes)
+    
+## An interesting fact about Darth Vader
+    He's got a good poker face (https://upjoke.com/darth-vader-jokes)
