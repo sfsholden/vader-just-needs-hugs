@@ -22,3 +22,6 @@ This is all sorts sillyness and joy.
     
 ## What does Darth Vader exhale?
     Carbon Darkside (https://upjoke.com/darth-vader-jokes)
+
+## How does Darth Vader like his toast?
+    On the dark side. (https://upjoke.com/darth-vader-jokes)
