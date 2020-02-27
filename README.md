@@ -13,3 +13,6 @@ This is all sorts sillyness and joy.
     
 ## How many woks would an ewok wash if ewoks could wash woks?
     All of them, till the Endor time! (https://upjoke.com/ewok-jokes)
+
+## How did Luke Skywalker get around the forest moon of Endor?
+    Ewoked. (https://upjoke.com/ewok-jokes)
