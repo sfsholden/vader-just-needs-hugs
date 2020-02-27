@@ -8,4 +8,5 @@ This is all sorts sillyness and joy.
 ## What do you call a socially aware Chewbacca?
     A “Wokie” (https://upjoke.com/chewbacca-jokes)
 
-No, this has no other purpose.
+## Why can't ewoks yell in the house?
+    Because they have to use their Endor voices. (https://upjoke.com/ewok-jokes)
