@@ -10,3 +10,6 @@ This is all sorts sillyness and joy.
 
 ## Why can't ewoks yell in the house?
     Because they have to use their Endor voices. (https://upjoke.com/ewok-jokes)
+    
+## How many woks would an ewok wash if ewoks could wash woks?
+    All of them, till the Endor time! (https://upjoke.com/ewok-jokes)
