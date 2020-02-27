@@ -28,3 +28,6 @@ This is all sorts sillyness and joy.
     
 ## I heard Darth Vader's suit was really expensive.
     It must have cost him an arm and a leg. (https://upjoke.com/darth-vader-jokes)
+    
+## What did Darth Vader do when his iTunes stopped responding?
+    He force quit. (https://upjoke.com/darth-vader-jokes)
