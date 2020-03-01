@@ -37,3 +37,6 @@ This is all sorts sillyness and joy.
     
 ## Baby Yoda's first word
     Probably came after his second word. (https://upjoke.com/yoda-jokes)
+    
+## Why is Yoda such a good gardener?
+    Green thumbs, he has. (https://upjoke.com/yoda-jokes)
