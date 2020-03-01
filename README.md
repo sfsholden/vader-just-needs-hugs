@@ -40,3 +40,6 @@ This is all sorts sillyness and joy.
     
 ## Why is Yoda such a good gardener?
     Green thumbs, he has. (https://upjoke.com/yoda-jokes)
+    
+## Why did the Star Wars movies come out in the order 4 5 6 1 2 3?
+    In charge of the sequence, Yoda was. (https://upjoke.com/yoda-jokes)
