@@ -34,3 +34,6 @@ This is all sorts sillyness and joy.
     
 ## An interesting fact about Darth Vader
     He's got a good poker face (https://upjoke.com/darth-vader-jokes)
+    
+## Baby Yoda's first word
+    Probably came after his second word. (https://upjoke.com/yoda-jokes)
