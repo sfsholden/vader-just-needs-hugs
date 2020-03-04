@@ -46,3 +46,6 @@ This is all sorts sillyness and joy.
     
 ## What did Master Yoda say when he first saw himself on Blu Ray?
     HDMI (https://upjoke.com/yoda-jokes)
+    
+## Where did Luke get his bionic hand?
+    At the second-hand store. (https://bestlifeonline.com/star-wars-jokes/)
