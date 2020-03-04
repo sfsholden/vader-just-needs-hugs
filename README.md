@@ -43,3 +43,6 @@ This is all sorts sillyness and joy.
     
 ## Why did the Star Wars movies come out in the order 4 5 6 1 2 3?
     In charge of the sequence, Yoda was. (https://upjoke.com/yoda-jokes)
+    
+## What did Master Yoda say when he first saw himself on Blu Ray?
+    HDMI (https://upjoke.com/yoda-jokes)
